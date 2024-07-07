@@ -45,3 +45,25 @@ If you're interested in exploring the user side of ShopNow, you can find the use
 
 Feel free to explore and contribute to the user side of our platform!
 
+
+
+Video
+
+
+
+
+
+
+
+
+
+https://github.com/kanavnayyer/shopnowVendor/assets/78265974/48e5fe05-777f-4bfd-9ecd-2d9cb1b20813
+
+
+
+
+
+
+
+
+
